@@ -9,5 +9,6 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning information system
 - 🪐 I'm teaching lessons at multidata university
 - 💬 Ask me about my self? you can Direct Message my instagram 🌝
+- 👀 if anything important, call me at --> kgsmuhammadalamsyah16@mhs.mdp.ac.id
 
 
