@@ -8,7 +8,7 @@ Here are some ideas to get you started:
 - 🔭 I’m currently working on Apotek R'Fia Lestari. i'm a pharmacist assitant
 - 🌱 I’m currently learning information system
 - 🪐 I'm teaching lessons at multidata university
-- 💬 Ask me about my self? you can Direct Message my instagram 🌝
+- 💬 Ask me about my self? you can Direct Message my instagram @kgsmuhammadalamsyah 🌝
 - 👀 if anything important, call me at --> kgsmuhammadalamsyah16@mhs.mdp.ac.id
 
 
